@@ -1,0 +1,7 @@
+- 👋 Hi, I’m Sigma
+- 👀 I’m interested in Sigma
+- 🌱 I’m currently learning Sigma
+- 💞️ I’m looking to collaborate on Sigma
+- 📫 How to reach me Sigma@Sigma.Sigma
+- 😄 Pronouns: Sigma/Sigma
+- ⚡ Fun fact: Sigma...
